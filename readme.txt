@@ -1,1 +1,1 @@
-https://farazshafi.github.io/Parle-agro-fizz-clone/
+https://jithinlal645.github.io/PARLEAGRO/
